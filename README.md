@@ -1,2 +1,3 @@
 # hello-world
-first of all on github
+É minha primeira vez no GITHUB. Tenho atas expectativas para ele e meu futuro.
+ihuuuuuuuuuuuuu \o/
